@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me Gmail 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Laughter is the best medicine
 
 <!---
 ainesh3636/ainesh3636 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
